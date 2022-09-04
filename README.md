@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Shiba#2721
+- 👀 I’m interested in : Friend...
+- 🌱 I’m currently learning : Script exploit roblox ( Learning )
+- 💞️ I’m looking to collaborate on : Game Project / cheat roblox
+- 📫 How to reach me : Shiba#2721 ( Discord )
